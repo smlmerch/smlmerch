@@ -1,1 +1,1 @@
-# smlmerch
+# smlmerch.blogspot.com
